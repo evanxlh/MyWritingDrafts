@@ -2,7 +2,7 @@
 
 小孩养了2只小龟，没几日，就撒手不管了；老婆倒是上心把它们养了起来，不仅把它们伺候得健健壮壮的，还特意给它们的 **“豪宅”** 种上了绿植。我常开玩笑说：“真羡慕这两只小龟，如果老婆也能像照顾小龟那样无微不至的照顾我，估计我是要经常幸福得在空中漂来漂去啦~”
 
-![](two_turtles_01.jpg)
+![](https://gitee.com/evanxlh/MyWritingDrafts/raw/main/LifeFunMoments/TurtleEscape/two_turtles_01.jpg)
 
 ## 龟大胆抢食，龟小胆躲猫猫
 
@@ -23,7 +23,7 @@
 
 “怎么可能呢？养小龟的盆也有那么高，它又是怎么爬出来的呢？难道是通过盛食物的白色平台垫脚爬出来的吗？” 可惜我没能目睹它的作案现场，着实遗憾，因为我很是好奇！
 
-![](two_turtles_02.jpg)
+![](https://gitee.com/evanxlh/MyWritingDrafts/raw/main/LifeFunMoments/TurtleEscape/two_turtles_02.jpg)
 
 ## 再次越狱，捉拿“龟”案
 
@@ -31,10 +31,10 @@
 
 我当时心里一紧，担心它是不是挂了，赶紧碰了碰它的四只小爪子，没想到还有反应！我又惊又喜：“好家伙，两周不吃不喝，居然还活着，这生命力也太顽强了！” 我赶紧把它拿到水龙头下冲了冲，给它补点水分，送回盆里后又立马撒了些面包虫。可它没急着吃，反倒慢悠悠爬进水里 —— **估计是憋坏了，先泡个澡 “洗去风尘”** 再说吧~
 
-![](two_turtles_03.jpg)
+![](https://gitee.com/evanxlh/MyWritingDrafts/raw/main/LifeFunMoments/TurtleEscape/two_turtles_03.jpg)
 
 ## 加固豪宅，看你咋跑
 
 经历了这两次 “越狱事件“，我们总算摸清了龟大胆的性子。老婆用了块小盖子，把盆的另一侧牢牢盖住了，这下看你还怎么越狱，嘿嘿！
 
-![](two_turtles_04.jpg)
+![](https://gitee.com/evanxlh/MyWritingDrafts/raw/main/LifeFunMoments/TurtleEscape/two_turtles_04.jpg)
